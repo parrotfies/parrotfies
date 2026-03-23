@@ -10,4 +10,4 @@ he / him ㅤㅤ*P*rincey*Z*am ’ s kinㅤ♡ㅤ[@AQUIN0BY2002](https://github.c
 
 ***I don't care*** if you wanna compete w *m*e over follows , I love everyone :33
 
-<img src="https://u.cubeupload.com/Dagasi/ezgif72e75bbf34a10c.gif" width="20">ㅤㅤyou don't *w*ant *m*e to ***s***tay*?* : *bl*ock *!*
+<img src="https://u.cubeupload.com/Dagasi/ezgif72e75bbf34a10c.gif" width="20">ㅤㅤyou don't *w*ant *m*e to ***s***tay? : *bl*ock *!*
