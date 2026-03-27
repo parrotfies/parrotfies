@@ -6,7 +6,7 @@
 
 dizs me :3333
 
-he / him ㅤㅤ*P*rincey*Z*am ’ s kinㅤ♡ㅤ[@AQUIN0BY2002](https://github.com/AQUIN0BY2002) ㅤ*H*i darling!! 
+he / him ㅤㅤ*P*rincey*Z*am ’ s kinㅤ♡ㅤ[@coldifiedd](https://github.com/coldifiedd) ㅤ*H*i darling!! 
 
 ***I don't care*** if you wanna compete w *m*e over follows , I love everyone :33
 
