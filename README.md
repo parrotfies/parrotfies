@@ -5,7 +5,7 @@
 
 **꒰ᩧׁׅ  ㅤ 𓏼**ㅤ <img src="https://u.cubeupload.com/Dagasi/95sinttulo2026032614.png" width="240">ㅤㅤ 𓏫**⑅⃝** ۪۪۫ *♡*
 
-${\color{#323745}\textsf{𔓕}}$ㅤㅤㅤ[𝔸ta𝐛ook](https://clonefies.atabook.org) 
+${\color{#323745}\textsf{𔓕}}$ㅤㅤㅤ[𝔸ta𝐛ook](https://chufiess.atabook.org) 
 ${\color{#FEC5C9}\textsf{ 𖹭 }}$
 ${\color{#F5E0E1}\textsf{ 𖹭 }}$ 
 ${\color{#ECFFFD}\textsf{ 𖹭 }}$ [𝕄ai𝐧](https://github.com/manepaws)ㅤㅤㅤ ${\color{#323745}\textsf{𔓕}}$
